@@ -69,4 +69,3 @@ Ionize.org
 [Insert Phone Number]
 
 Disclaimer: This draft license is intended for informational purposes only and does not constitute legal advice. It is essential to consult with a qualified attorney to tailor the license to your specific requirements and ensure its enforceability.![Trinity](https://github.com/user-attachments/assets/5ea78d1d-558e-415a-8a63-22b20def9ded)
-![diagram-export-5-6-2024-10_18_41-PM (2)](https://github.com/user-attachments/assets/3d5b39de-9309-4a45-aa2a-334ae9b08461)
